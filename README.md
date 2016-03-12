@@ -1,0 +1,1 @@
+# Como-obter-valores-usando-imagens-de-graficos
